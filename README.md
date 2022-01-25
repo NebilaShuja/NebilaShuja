@@ -1,8 +1,8 @@
 # ✨NebilaShuja✨
 
 - 💻 COMPUTER SCIENCE AND ENGINEERING
-- 👯 LOOKING TO COLLABORATE ON OPEN SOURCE
-- 💬 ASK ME ABOUT TECH
+- STUDENT
+
 
 ### ☄️ TOUCH ME
 * <img src="https://img.icons8.com/clouds/25/000000/instagram-new--v2.png"/>[INSTAGRAM](https://www.instagram.com/__neb__ila__/)
